@@ -10,7 +10,7 @@ Web3加速器(web3jsq)，全球节点，稳定不掉线。全IPLC专线服务，
 
 ## Web3加速器(web3jsq)优惠码
 
-目前暂无优惠活动。
+9折优惠码：[web3](https://web3jsq.com/f/zO44zE0O)
 
 ## Web3加速器(web3jsq)特点
 
