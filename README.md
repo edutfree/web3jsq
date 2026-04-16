@@ -1,6 +1,6 @@
 # Web3加速器(web3jsq)官网地址
 
-永久官网：[web3jsq.com](https://web3jsq.vip/f/zO44zE0O)
+永久官网：[web3jsq.com](https://web3aa.com/f/zO44zE0O)
 
 ## Web3加速器(web3jsq)简介
 
@@ -10,7 +10,7 @@ Web3加速器(web3jsq)，全球节点，稳定不掉线。全IPLC专线服务，
 
 ## Web3加速器(web3jsq)优惠码
 
-9折优惠码：[web3](https://web3jsq.vip/f/zO44zE0O)
+9折优惠码：[web3](https://web3aa.com/f/zO44zE0O)
 
 ## Web3加速器(web3jsq)特点
 
@@ -41,7 +41,7 @@ Web3加速器(web3jsq)，全球节点，稳定不掉线。全IPLC专线服务，
 
 详细套餐介绍参考下图：
 
-[![Web3加速器(web3jsq)套餐价格](web3jsq_20250314_230926.png)](https://web3jsq.vip/f/zO44zE0O)
+[![Web3加速器(web3jsq)套餐价格](web3jsq_20250314_230926.png)](https://web3aa.com/f/zO44zE0O)
 
 ---
 
